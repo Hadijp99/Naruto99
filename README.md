@@ -1,2 +1,0 @@
-# Naruto99
-Smartkontrak
